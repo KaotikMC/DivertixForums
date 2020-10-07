@@ -1,1 +1,1 @@
-# Divertix Forums developpement!
+# Divertix Forums develoment!
